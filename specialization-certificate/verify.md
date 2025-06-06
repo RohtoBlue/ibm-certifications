@@ -1,1 +1,1 @@
-https://www.coursera.org/account/accomplishments/professional-cert/5GEZZRRYHMF8
+https://coursera.org/verify/professional-cert/5GEZZRRYHMF8
